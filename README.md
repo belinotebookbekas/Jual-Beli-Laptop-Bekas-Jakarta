@@ -1,0 +1,4 @@
+Jual-Beli-Laptop-Bekas-Jakarta
+==============================
+
+KAMI KHUSUS TERIMA BELI NOTEBOOK BEKAS LAPTOP SECOND SEGALA KONDISI, Merk IBM Lenovo TOSHIBA SONY COMPAQ DELL ACER MINIMAL PENTIUM 4 Silakan HUB/SMS KAMI (021) 3255 4420 Hp: 0812 187 19954 Khusus area Jakarta /Barang Kami Jemput
